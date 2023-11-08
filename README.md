@@ -1,1 +1,2 @@
-# hello-word
+Natan Vinicius Troian Kottwitz
+Se alguém ama o mundo, o amor do Pai não está nele. Porque tudo que há no mundo, a concupiscência da carne, a concupiscência dos olhos e a soberba da vida, não vem do Pai.
